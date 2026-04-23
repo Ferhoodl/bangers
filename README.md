@@ -29,3 +29,5 @@
 **"Winning is not a sometime thing; it’s an all time thing. You don’t win once in a while, you don’t do things right once in a while, you do them right all the time. Winning is habit. Unfortunately, so is losing."** - *Vince Lombardi*
 
 **"Courage is not simply one of the virtues, but the form of every virtue at the testing point."** - *C. S. Lewis*
+
+**"A good player is always lucky"** - *José Raúl Capablanca*
