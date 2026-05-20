@@ -30,4 +30,8 @@
 
 **"Courage is not simply one of the virtues, but the form of every virtue at the testing point."** - *C. S. Lewis*
 
-**"A good player is always lucky"** - *José Raúl Capablanca*
+**"A good player is always lucky"** (let the reader understand) - *José Raúl Capablanca*
+
+**"People die in bed."** - *A farmer, upon being asked why he was up so early doing work.* 
+
+**"The goal and norm of discipline is bliss.** - *Aquinas*
