@@ -32,6 +32,8 @@
 
 **"A good player is always lucky"** (let the reader understand) - *José Raúl Capablanca*
 
-**"People die in bed."** - *A farmer, upon being asked why he was up so early doing work.* 
+**"People die in bed."** - *A farmer, upon being asked why he was up working so early.* 
 
-**"The goal and norm of discipline is bliss.** - *Aquinas*
+**"The goal and norm of discipline is bliss."** - *Aquinas*
+
+**"Slow is smooth; smooth is fast."** - *US Navy Seal maxim*
