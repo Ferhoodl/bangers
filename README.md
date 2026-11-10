@@ -37,3 +37,7 @@
 **"The goal and norm of discipline is bliss."** - *Aquinas*
 
 **"Slow is smooth; smooth is fast."** - *US Navy Seal maxim*
+
+**"Patience is bitter, but its fruit is sweet."** - *Jean-Jacques Rousseau*
+
+**"But if anyone does not provide for his own, and especially for those of his household, he has denied the faith and is worse than an unbeliever."* - *1 Timothy 5:8 NASB*
